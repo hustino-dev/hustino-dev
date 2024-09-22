@@ -13,4 +13,4 @@ I really wanted to learn coding so bad, so I love to join different communities 
 - 🤔 I’m looking for help with coding.
 - 📫 How to reach me: ...
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Need cure for boredom? start learning coding/programmin as a hobby and become pro then earn eventually. (not a fan fact)
+- ⚡ Fun fact: Need cure for boredom? start learning coding/programming as a hobby and become pro then earn eventually. (not a fan fact)
